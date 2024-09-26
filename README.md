@@ -75,7 +75,7 @@ For instance:
 
 Conclusion:
 Even if you're fresh to the job market, adding internships to your resume is a great method to highlight your experience, abilities, and contributions. You may portray your internships as worthwhile experiences that complement the positions you're seeking for by utilizing precise job names, highlighting duties, exhibiting accomplishments, and putting a strong emphasis on transferrable abilities. Customize your resume for each job, and don't forget to highlight the qualifications and soft skills that set you apart from the competition. Your internships may serve as a springboard to your ideal position!
-You can visit our site: Applyatjob.com
- https://applyatjob.com/hiring-employee
+You can visit our site: Applyatjob.com<br>
+ https://applyatjob.com/hiring-employee<br>
 
 https://applyatjob.com/jobs
